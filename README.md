@@ -1,1 +1,2 @@
-# Marshmallows-Recipe
+Homemade Marshmallows Recipe: Sweet, Fluffy Delights for Every Occasion
+Craft your own irresistible [Marshmallows Recipe](https://finecook.info/marshmallows/) with our easy-to-follow recipe. Experience the joy of biting into soft, pillowy clouds of sweetness perfect for toasting, topping hot cocoa, or simply enjoying as a treat. Dive into the world of homemade confectionery and elevate your dessert game!
